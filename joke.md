@@ -1,1 +1,2 @@
-Sono bravissimo in matematica, posso sommare problemi !
+Sono bravissimo in matematica, posso sommare problemi...
+e ottenere sempre un disastro come risultato!
